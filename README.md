@@ -1,16 +1,16 @@
 ## I am currently
 
-Available. 
+Not much. 
 
 ## For: 
 
-* Custom development with Firefox, Chrome, and Mobile apps. 
+Hunting commies
 
 ## Other notes
 
 ## I am from: 
 
-Ribeirao Preto, Brazil
+West Berlin
 
 ## I can work: 
 
